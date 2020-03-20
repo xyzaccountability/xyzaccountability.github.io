@@ -18,7 +18,9 @@ I'm not the most social person, not very confident with public speaking. Each ye
 
 I want to become the best person possible.
 
+I'm hoping to find an accountability partner or mastermind group to push each other forward in our goals. But until I do, this blog will be my accountabilty partner.
+
 # Today:
 - Meditated for 15 minutes
-- Weight lifted - Squats
+- Weight lifted - Squat day
 - Ran km for 25 minutes
