@@ -8,6 +8,7 @@ Some of these goals are just on going things, others have more defined ending.
 
 # Wellness / health
 - Meditate 15 minutes every morning
+- Stop biting my nails
 - Lift weights 4x per week
 - Run at least 4x per week
   - Goal: do a marathon
